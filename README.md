@@ -1,1 +1,1 @@
-# Clase_de_metabol-mica_Natalia-Oropeza
+# Clase_de_metabolomica_Natalia-Oropeza
